@@ -57,11 +57,12 @@ Provided analytics that will aid proper estimation and effective planning of inv
 
 **5. OBSERVASION/FINDINGS**
 
-Consumers formed the largest market segment for the giant store with a whooping 26,518 customers. the corporate segment of the Market was second with 15,429 total customers. The Home office market segment was third with 9,343 customers.
+I). Consumers formed the largest market segment for the giant store with a whooping 26,518 customers. the corporate segment of the Market was second with 15,429 total customers. The Home office market segment was third with 9,343 customers.
 
-The Asian and Pacific (APAC) market stands as the largest Distinct market for the retailer. On the other hand the company has a lot to do to bring in the Canadian Market into their influence.
+II). The Asian and Pacific (APAC) market stands as the largest Distinct market for the retailer. On the other hand the company has a lot to do to bring in the Canadian Market into their influence.
 
-The US Market is the most profitable for the retail giant when it comes to profits accrued. The canadian Market still lags behind in the companys product usage.
+III). The US Market is the most profitable for the retail giant when it comes to profits accrued. The canadian Market still lags behind in the companys product usage.
 
-The Corporate Market segment remains to be the most profitable compared to the Home office and the Consumer.
+IV). The Corporate Market segment remains to be the most profitable compared to the Home office and the Consumer.
 
+V). The US_Consumer market will be more profitable for the retail giant should they embark on working with the combined consumer market segmentation mode. Consequently the company needs to work on the best ways of bringing in the canadian consumers into their grip.
