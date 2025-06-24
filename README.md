@@ -61,3 +61,7 @@ Consumers formed the largest market segment for the giant store with a whooping 
 
 The Asian and Pacific (APAC) market stands as the largest Distinct market for the retailer. On the other hand the company has a lot to do to bring in the Canadian Market into their influence.
 
+The US Market is the most profitable for the retail giant when it comes to profits accrued. The canadian Market still lags behind in the companys product usage.
+
+
+
