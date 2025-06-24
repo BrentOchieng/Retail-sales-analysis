@@ -59,5 +59,5 @@ Provided analytics that will aid proper estimation and effective planning of inv
 
 Consumers formed the largest market segment for the giant store with a whooping 26,518 customers. the corporate segment of the Market was second with 15,429 total customers. The Home office market segment was third with 9,343 customers.
 
-
+The Asian and Pacific (APAC) market stands as the largest Distinct market for the retailer. On the other hand the company has a lot to do to bring in the Canadian Market into their influence.
 
