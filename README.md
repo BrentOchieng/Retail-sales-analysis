@@ -63,5 +63,5 @@ The Asian and Pacific (APAC) market stands as the largest Distinct market for th
 
 The US Market is the most profitable for the retail giant when it comes to profits accrued. The canadian Market still lags behind in the companys product usage.
 
-
+The Corporate Market segment remains to be the most profitable compared to the Home office and the Consumer.
 
